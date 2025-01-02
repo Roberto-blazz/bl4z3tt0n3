@@ -1,4 +1,4 @@
-I'm blazettone<br>
+I'm bl4z3tt0n3<br>
 I'm going to highschool<br>
 I'm from italy
 <!---
